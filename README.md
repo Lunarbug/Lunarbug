@@ -2,7 +2,7 @@ We are in this together.
 
 I am not Kamala, I am a supporter
 
-I know times are hard and this election has us in a dark place, but trust me when I say there is light at the end of this tunnel. Your life is not worth taking over this. To all my Women, Trans kids, LGBTQIA+, and Indigenous people, and POC communities, I see you. You are not alone. I know four years is a lot, but we are all working hard to stay strong and positive. Today, we grieve. Tomorrow, we get to work.
+I know times are hard and this election has us in a dark place, but trust me when I say there is light at the end of this tunnel. Your life is not worth taking over this. To all my Women, Trans kids, LGBTQIA+, Indigenous people, and POC communities, I see you. You are not alone. I know four years is a lot, but we are all working hard to stay strong and positive. Today, we grieve. Tomorrow, we get to work.
 
 !!HOTLINES!!
 
