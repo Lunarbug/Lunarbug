@@ -50,6 +50,8 @@ my Disc
 -------☆
 cosmicluna37770 or LunaMoon
 
+As a Bisexual, White/Native American, Woman with Autism, I would like to say to:
+
 We hope for a better future. Donald Trump is a Racist, a Rapist, a Sexist, a Pedophile, and a Felon. If a felon cannot vote, why should we let one run for president?
 
 I hope you will be with me when I say we want Kamala Harris for 2028! Let's make America blue again. 💙
